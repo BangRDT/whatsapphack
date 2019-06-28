@@ -1,2 +1,0 @@
-# whatsapphack
-Cara hacker whatsapp
